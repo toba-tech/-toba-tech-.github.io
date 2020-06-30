@@ -8,3 +8,7 @@ Er hat immer einen Plan, der natürlich immer schief geht. Benny und Kjeld sind 
 * goldener Siegelring
 * meist kein Geld
 * Timing ist sein Zauberwort
+
+Egon Olsen sagt in jedem Film:
+
+> Ich habe einen Plan.
